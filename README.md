@@ -1,1 +1,1 @@
-### <img align="middle" src="https://media.discordapp.net/attachments/742655018578215013/742798882081341460/image0.gif" />
+### <img src="https://cdn.discordapp.com/attachments/376422292005060608/761986228026605588/image0.jpg" width="300" height="300" />
