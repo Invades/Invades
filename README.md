@@ -1,1 +1,1 @@
-### <img src="https://media.discordapp.net/attachments/896878468736880661/909034414040821820/EIIMShHD.gif" width="1000" height="300" />
+### <img src="https://media.discordapp.net/attachments/962472832812597309/986674237865615490/ezgif.com-gif-maker_4.gif" width="1000" height="300" />
